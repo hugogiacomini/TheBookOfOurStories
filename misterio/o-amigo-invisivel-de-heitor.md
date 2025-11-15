@@ -1,81 +1,81 @@
-# O Amigo Invisível de Heitor
+# O AMIGO INVISÍVEL DE HEITOR
 
-Era uma tarde cinzenta quando Heitor, um menino de 6 anos com olhos curiosos como duas âmbar brilhantes e cabelos bagunçados cor de mel, decidiu explorar a floresta próxima à sua casa. Ele adorava aquele lugar onde árvores ancestrais erguiam-se como catedrais verdes, suas copas sussurrando canções antigas ao vento. O ar cheirava a musgo úmido e terra fértil, enquanto pássaros pintavam melodias invisíveis no céu que se espreitava entre as folhas.
+ERA UMA TARDE CINZENTA QUANDO HEITOR, UM MENINO DE 6 ANOS COM OLHOS CURIOSOS COMO DUAS ÂMBAR BRILHANTES E CABELOS BAGUNÇADOS COR DE MEL, DECIDIU EXPLORAR A FLORESTA PRÓXIMA À SUA CASA. ELE ADORAVA AQUELE LUGAR ONDE ÁRVORES ANCESTRAIS ERGUIAM-SE COMO CATEDRAIS VERDES, SUAS COPAS SUSSURRANDO CANÇÕES ANTIGAS AO VENTO. O AR CHEIRAVA A MUSGO ÚMIDO E TERRA FÉRTIL, ENQUANTO PÁSSAROS PINTAVAM MELODIAS INVISÍVEIS NO CÉU QUE SE ESPREITAVA ENTRE AS FOLHAS.
 
-Mas ultimamente, algo misterioso estava acontecendo na floresta. As pessoas do vilarejo falavam em sussurros nervosos sobre sons assustadores que ecoavam entre os troncos — gemidos que faziam a pele arrepiar, galhos que se quebravam com estalos secos como ossos partidos, e sombras dançantes que se moviam sem explicação. O medo havia se instalado como névoa fria, e poucos ousavam pisar naquele caminho de folhas douradas.
+MAS ULTIMAMENTE, ALGO MISTERIOSO ESTAVA ACONTECENDO NA FLORESTA. AS PESSOAS DO VILAREJO FALAVAM EM SUSSURROS NERVOSOS SOBRE SONS ASSUSTADORES QUE ECOAVAM ENTRE OS TRONCOS — GEMIDOS QUE FAZIAM A PELE ARREPIAR, GALHOS QUE SE QUEBRAVAM COM ESTALOS SECOS COMO OSSOS PARTIDOS, E SOMBRAS DANÇANTES QUE SE MOVIAM SEM EXPLICAÇÃO. O MEDO HAVIA SE INSTALADO COMO NÉVOA FRIA, E POUCOS OUSAVAM PISAR NAQUELE CAMINHO DE FOLHAS DOURADAS.
 
-## O Mistério da Floresta
+## O MISTÉRIO DA FLORESTA
 
-Heitor não tinha medo. Seu coração batia com a coragem dos aventureiros, pulsando forte como um tambor pequenino em seu peito. Enquanto caminhava entre as árvores, seus pés descalços afundavam na manta macia de folhas que exalavam perfume de outono. O sol filtrado pelas copas pintava manchas douradas e dançantes no chão da floresta.
+HEITOR NÃO TINHA MEDO. SEU CORAÇÃO BATIA COM A CORAGEM DOS AVENTUREIROS, PULSANDO FORTE COMO UM TAMBOR PEQUENINO EM SEU PEITO. ENQUANTO CAMINHAVA ENTRE AS ÁRVORES, SEUS PÉS DESCALÇOS AFUNDAVAM NA MANTA MACIA DE FOLHAS QUE EXALAVAM PERFUME DE OUTONO. O SOL FILTRADO PELAS COPAS PINTAVA MANCHAS DOURADAS E DANÇANTES NO CHÃO DA FLORESTA.
 
-De repente, um som arrepiante cortou o silêncio:
+DE REPENTE, UM SOM ARREPIANTE CORTOU O SILÊNCIO:
 
-— Uuuuuhhhhh...
+— UUUUUHHHHH...
 
-Era um gemido longo e melancólico, que vibrava no ar como uma corda de violino invisível. O menino parou, seus ouvidos atentos captando cada nuance daquele lamento. Então, uma pedra cinzenta e áspera rolou do nada bem na sua frente, fazendo um barulho que retumbou entre as árvores como um trovão pequeno.
+ERA UM GEMIDO LONGO E MELANCÓLICO, QUE VIBRAVA NO AR COMO UMA CORDA DE VIOLINO INVISÍVEL. O MENINO PAROU, SEUS OUVIDOS ATENTOS CAPTANDO CADA NUANCE DAQUELE LAMENTO. ENTÃO, UMA PEDRA CINZENTA E ÁSPERA ROLOU DO NADA BEM NA SUA FRENTE, FAZENDO UM BARULHO QUE RETUMBOU ENTRE AS ÁRVORES COMO UM TROVÃO PEQUENO.
 
-— Quem está aí? — perguntou Heitor, sua voz clara e firme cortando o ar fresco da floresta.
+— QUEM ESTÁ AÍ? — PERGUNTOU HEITOR, SUA VOZ CLARA E FIRME CORTANDO O AR FRESCO DA FLORESTA.
 
-Silêncio. Mas ele podia sentir — não com os olhos, mas com aquele sentido especial que só as crianças têm — que *alguém* estava ali. O ar ficou mais denso, pesado como mel, e as folhas tremiam de um jeito diferente, agitadas por uma presença invisível. Um aroma estranho flutuava ao redor, meio terroso, meio doce, como pétalas esquecidas pela chuva.
+SILÊNCIO. MAS ELE PODIA SENTIR — NÃO COM OS OLHOS, MAS COM AQUELE SENTIDO ESPECIAL QUE SÓ AS CRIANÇAS TÊM — QUE *ALGUÉM* ESTAVA ALI. O AR FICOU MAIS DENSO, PESADO COMO MEL, E AS FOLHAS TREMIAM DE UM JEITO DIFERENTE, AGITADAS POR UMA PRESENÇA INVISÍVEL. UM AROMA ESTRANHO FLUTUAVA AO REDOR, MEIO TERROSO, MEIO DOCE, COMO PÉTALAS ESQUECIDAS PELA CHUVA.
 
-## O Encontro Inesperado
+## O ENCONTRO INESPERADO
 
-— Por favor, apareça — disse Heitor gentilmente, sua voz macia como pétalas de rosa. — Eu não vou fazer mal.
+— POR FAVOR, APAREÇA — DISSE HEITOR GENTILMENTE, SUA VOZ MACIA COMO PÉTALAS DE ROSA. — EU NÃO VOU FAZER MAL.
 
-O silêncio que se seguiu tinha textura — aveludado, espesso, cheio de expectativa. Então, uma voz emergiu do nada, rouca e trêmula como o ranger de um galho velho ao vento:
+O SILÊNCIO QUE SE SEGUIU TINHA TEXTURA — AVELUDADO, ESPESSO, CHEIO DE EXPECTATIVA. ENTÃO, UMA VOZ EMERGIU DO NADA, ROUCA E TRÊMULA COMO O RANGER DE UM GALHO VELHO AO VENTO:
 
-— Você... você consegue me ouvir?
+— VOCÊ... VOCÊ CONSEGUE ME OUVIR?
 
-Havia tanta surpresa e esperança naquelas palavras que elas pareciam brilhar no ar como vaga-lumes.
+HAVIA TANTA SURPRESA E ESPERANÇA NAQUELAS PALAVRAS QUE ELAS PARECIAM BRILHAR NO AR COMO VAGA-LUMES.
 
-— Claro que consigo! — disse Heitor, seu sorriso iluminando o rosto como um pequeno sol. — Onde você está?
+— CLARO QUE CONSIGO! — DISSE HEITOR, SEU SORRISO ILUMINANDO O ROSTO COMO UM PEQUENO SOL. — ONDE VOCÊ ESTÁ?
 
-— Estou bem na sua frente — suspirou a voz, e o suspiro soou como vento atravessando uma caverna vazia. — Mas você não pode me ver. Ninguém pode. Eu sou invisível.
+— ESTOU BEM NA SUA FRENTE — SUSPIROU A VOZ, E O SUSPIRO SOOU COMO VENTO ATRAVESSANDO UMA CAVERNA VAZIA. — MAS VOCÊ NÃO PODE ME VER. NINGUÉM PODE. EU SOU INVISÍVEL.
 
-Heitor franziu a testa, seus olhos curiosos tentando enxergar o que não tinha forma. O ar tremulava levemente à sua frente, como se algo estivesse perturbando a luz.
+HEITOR FRANZIU A TESTA, SEUS OLHOS CURIOSOS TENTANDO ENXERGAR O QUE NÃO TINHA FORMA. O AR TREMULAVA LEVEMENTE À SUA FRENTE, COMO SE ALGO ESTIVESSE PERTURBANDO A LUZ.
 
-— Ah, então é por isso que as pessoas estão assustadas! Você está fazendo barulhos e movendo coisas.
+— AH, ENTÃO É POR ISSO QUE AS PESSOAS ESTÃO ASSUSTADAS! VOCÊ ESTÁ FAZENDO BARULHOS E MOVENDO COISAS.
 
-— Sim... — a voz ficou ainda mais triste, pesada como nuvens de tempestade. — Eu só queria que alguém me notasse. Passei tanto tempo sozinho que a solidão se transformou em raiva dentro de mim, crescendo como ervas daninhas no jardim do meu coração. Pensei que se eu assustasse as pessoas, elas pelo menos saberiam que eu existo.
+— SIM... — A VOZ FICOU AINDA MAIS TRISTE, PESADA COMO NUVENS DE TEMPESTADE. — EU SÓ QUERIA QUE ALGUÉM ME NOTASSE. PASSEI TANTO TEMPO SOZINHO QUE A SOLIDÃO SE TRANSFORMOU EM RAIVA DENTRO DE MIM, CRESCENDO COMO ERVAS DANINHAS NO JARDIM DO MEU CORAÇÃO. PENSEI QUE SE EU ASSUSTASSE AS PESSOAS, ELAS PELO MENOS SABERIAM QUE EU EXISTO.
 
-O coração de Heitor apertou como uma mãozinha fechada. Ele podia sentir a tristeza daquela criatura — ela tinha gosto de lágrimas salgadas e cheirava a chuva que nunca caiu. O menino entendeu: o monstro invisível não era mau. Estava só e triste, como um pássaro que perdeu sua canção.
+O CORAÇÃO DE HEITOR APERTOU COMO UMA MÃOZINHA FECHADA. ELE PODIA SENTIR A TRISTEZA DAQUELA CRIATURA — ELA TINHA GOSTO DE LÁGRIMAS SALGADAS E CHEIRAVA A CHUVA QUE NUNCA CAIU. O MENINO ENTENDEU: O MONSTRO INVISÍVEL NÃO ERA MAU. ESTAVA SÓ E TRISTE, COMO UM PÁSSARO QUE PERDEU SUA CANÇÃO.
 
-## Uma Amizade Especial
+## UMA AMIZADE ESPECIAL
 
-— Qual é o seu nome? — perguntou Heitor, sentando-se no chão macio coberto de musgo que parecia um tapete de veludo verde.
+— QUAL É O SEU NOME? — PERGUNTOU HEITOR, SENTANDO-SE NO CHÃO MACIO COBERTO DE MUSGO QUE PARECIA UM TAPETE DE VELUDO VERDE.
 
-— Ninguém nunca me perguntou isso... — a voz hesitou, e Heitor podia ouvir a emoção tremendo em cada sílaba como gotas de orvalho prestes a cair. — Eu me chamo Zéfiro.
+— NINGUÉM NUNCA ME PERGUNTOU ISSO... — A VOZ HESITOU, E HEITOR PODIA OUVIR A EMOÇÃO TREMENDO EM CADA SÍLABA COMO GOTAS DE ORVALHO PRESTES A CAIR. — EU ME CHAMO ZÉFIRO.
 
-— Oi, Zéfiro! — exclamou Heitor, e seu nome soou como música quando o menino o pronunciou. — Eu sou Heitor. Quer ser meu amigo?
+— OI, ZÉFIRO! — EXCLAMOU HEITOR, E SEU NOME SOOU COMO MÚSICA QUANDO O MENINO O PRONUNCIOU. — EU SOU HEITOR. QUER SER MEU AMIGO?
 
-Um silêncio emocionado pairou no ar, doce e espesso como mel derretido. Então, Heitor sentiu algo maravilhoso — uma brisa suave e morna, perfumada com o aroma de flores silvestres, envolveu sua mão. Era Zéfiro, tentando apertar sua mão da única forma que podia. A sensação era como ser tocado por seda invisível, macia e reconfortante.
+UM SILÊNCIO EMOCIONADO PAIROU NO AR, DOCE E ESPESSO COMO MEL DERRETIDO. ENTÃO, HEITOR SENTIU ALGO MARAVILHOSO — UMA BRISA SUAVE E MORNA, PERFUMADA COM O AROMA DE FLORES SILVESTRES, ENVOLVEU SUA MÃO. ERA ZÉFIRO, TENTANDO APERTAR SUA MÃO DA ÚNICA FORMA QUE PODIA. A SENSAÇÃO ERA COMO SER TOCADO POR SEDA INVISÍVEL, MACIA E RECONFORTANTE.
 
-— Você... você de verdade quer ser meu amigo? — perguntou o monstro, sua voz embargada de lágrimas que ninguém podia ver, mas que Heitor podia sentir no ar úmido ao redor.
+— VOCÊ... VOCÊ DE VERDADE QUER SER MEU AMIGO? — PERGUNTOU O MONSTRO, SUA VOZ EMBARGADA DE LÁGRIMAS QUE NINGUÉM PODIA VER, MAS QUE HEITOR PODIA SENTIR NO AR ÚMIDO AO REDOR.
 
-— Claro! — disse Heitor, e seu coração batia tão forte de felicidade que parecia um passarinho querendo voar. — Amigos não precisam se ver para se importarem um com o outro. Posso ouvir você, posso sentir você no vento, posso sentir sua tristeza e sua alegria. Isso já é suficiente!
+— CLARO! — DISSE HEITOR, E SEU CORAÇÃO BATIA TÃO FORTE DE FELICIDADE QUE PARECIA UM PASSARINHO QUERENDO VOAR. — AMIGOS NÃO PRECISAM SE VER PARA SE IMPORTAREM UM COM O OUTRO. POSSO OUVIR VOCÊ, POSSO SENTIR VOCÊ NO VENTO, POSSO SENTIR SUA TRISTEZA E SUA ALEGRIA. ISSO JÁ É SUFICIENTE!
 
-Daquele dia em diante, Heitor visitava Zéfiro todos os dias na floresta. Sob o dossel verde-esmeralda, entre raios de sol que dançavam como fitas douradas, eles brincavam de esconde-esconde (onde Zéfiro sempre ganhava, é claro). Contavam histórias que faziam as árvores se inclinarem para ouvir melhor. Heitor levava lanches em sua mochilinha azul — pães quentinhos que cheiravam a avó, frutas que estalavam doces entre os dentes, e biscoitos que se desmanchavam na boca como nuvens açucaradas. E mesmo sem ver Zéfiro comer, Heitor sabia que seu amigo saboreava cada mordida, porque podia ouvir os sons de contentamento, sentir a gratidão flutuando no ar como perfume de jasmim.
+DAQUELE DIA EM DIANTE, HEITOR VISITAVA ZÉFIRO TODOS OS DIAS NA FLORESTA. SOB O DOSSEL VERDE-ESMERALDA, ENTRE RAIOS DE SOL QUE DANÇAVAM COMO FITAS DOURADAS, ELES BRINCAVAM DE ESCONDE-ESCONDE (ONDE ZÉFIRO SEMPRE GANHAVA, É CLARO). CONTAVAM HISTÓRIAS QUE FAZIAM AS ÁRVORES SE INCLINAREM PARA OUVIR MELHOR. HEITOR LEVAVA LANCHES EM SUA MOCHILINHA AZUL — PÃES QUENTINHOS QUE CHEIRAVAM A AVÓ, FRUTAS QUE ESTALAVAM DOCES ENTRE OS DENTES, E BISCOITOS QUE SE DESMANCHAVAM NA BOCA COMO NUVENS AÇUCARADAS. E MESMO SEM VER ZÉFIRO COMER, HEITOR SABIA QUE SEU AMIGO SABOREAVA CADA MORDIDA, PORQUE PODIA OUVIR OS SONS DE CONTENTAMENTO, SENTIR A GRATIDÃO FLUTUANDO NO AR COMO PERFUME DE JASMIM.
 
-## A Transformação
+## A TRANSFORMAÇÃO
 
-Com o passar das estações, algo maravilhoso aconteceu. Como uma flor que se abre pétala por pétala sob o sol da manhã, Zéfiro mudou completamente. A raiva que queimava como brasas em seu peito invisível foi apagada pela água fresca da amizade. Não precisava mais assustar ninguém para se sentir importante, porque tinha um amigo de verdade — alguém que o via com o coração.
+COM O PASSAR DAS ESTAÇÕES, ALGO MARAVILHOSO ACONTECEU. COMO UMA FLOR QUE SE ABRE PÉTALA POR PÉTALA SOB O SOL DA MANHÃ, ZÉFIRO MUDOU COMPLETAMENTE. A RAIVA QUE QUEIMAVA COMO BRASAS EM SEU PEITO INVISÍVEL FOI APAGADA PELA ÁGUA FRESCA DA AMIZADE. NÃO PRECISAVA MAIS ASSUSTAR NINGUÉM PARA SE SENTIR IMPORTANTE, PORQUE TINHA UM AMIGO DE VERDADE — ALGUÉM QUE O VIA COM O CORAÇÃO.
 
-O monstro invisível começou a espalhar bondade pela floresta como pólen dourado espalhado pelo vento. Empurrava frutas maduras e suculentas das árvores para os viajantes com fome, seus dedos invisíveis gentis como penas. Afastava galhos perigosos dos caminhos antes que alguém tropeçasse. Nos dias quentes de verão, quando o sol ardia como fogo no céu, ele criava brisas refrescantes que cheiravam a lavanda e hortelã, acariciando os rostos suados dos caminhantes.
+O MONSTRO INVISÍVEL COMEÇOU A ESPALHAR BONDADE PELA FLORESTA COMO PÓLEN DOURADO ESPALHADO PELO VENTO. EMPURRAVA FRUTAS MADURAS E SUCULENTAS DAS ÁRVORES PARA OS VIAJANTES COM FOME, SEUS DEDOS INVISÍVEIS GENTIS COMO PENAS. AFASTAVA GALHOS PERIGOSOS DOS CAMINHOS ANTES QUE ALGUÉM TROPEÇASSE. NOS DIAS QUENTES DE VERÃO, QUANDO O SOL ARDIA COMO FOGO NO CÉU, ELE CRIAVA BRISAS REFRESCANTES QUE CHEIRAVAM A LAVANDA E HORTELÃ, ACARICIANDO OS ROSTOS SUADOS DOS CAMINHANTES.
 
-As pessoas do vilarejo começaram a perceber que a floresta não era mais assustadora. O medo se dissolveu como névoa ao sol. Agora, ela parecia mágica e acolhedora — um lugar onde aconteciam pequenos milagres, onde a bondade invisível tocava tudo com dedos suaves. Crianças voltaram a brincar entre as árvores, suas risadas tilintando como sinos de prata.
+AS PESSOAS DO VILAREJO COMEÇARAM A PERCEBER QUE A FLORESTA NÃO ERA MAIS ASSUSTADORA. O MEDO SE DISSOLVEU COMO NÉVOA AO SOL. AGORA, ELA PARECIA MÁGICA E ACOLHEDORA — UM LUGAR ONDE ACONTECIAM PEQUENOS MILAGRES, ONDE A BONDADE INVISÍVEL TOCAVA TUDO COM DEDOS SUAVES. CRIANÇAS VOLTARAM A BRINCAR ENTRE AS ÁRVORES, SUAS RISADAS TILINTANDO COMO SINOS DE PRATA.
 
-Um dia, quando o céu estava pintado de laranja e rosa pelo pôr do sol, Heitor estava sentado em sua árvore favorita — um velho carvalho cujos galhos pareciam braços abertos em abraço. As folhas sussurravam canções secretas, e o ar cheirava a mel silvestre e terra boa.
+UM DIA, QUANDO O CÉU ESTAVA PINTADO DE LARANJA E ROSA PELO PÔR DO SOL, HEITOR ESTAVA SENTADO EM SUA ÁRVORE FAVORITA — UM VELHO CARVALHO CUJOS GALHOS PARECIAM BRAÇOS ABERTOS EM ABRAÇO. AS FOLHAS SUSSURRAVAM CANÇÕES SECRETAS, E O AR CHEIRAVA A MEL SILVESTRE E TERRA BOA.
 
-Zéfiro, sua voz agora macia como veludo e cheia de calor, disse:
+ZÉFIRO, SUA VOZ AGORA MACIA COMO VELUDO E CHEIA DE CALOR, DISSE:
 
-— Heitor, obrigado por ter me enxergado quando ninguém mais conseguia. Você me ensinou que ser bondoso é muito melhor do que ser maldoso. Antes, eu era como uma tempestade furiosa. Agora, sou uma brisa que embala bebês para dormir.
+— HEITOR, OBRIGADO POR TER ME ENXERGADO QUANDO NINGUÉM MAIS CONSEGUIA. VOCÊ ME ENSINOU QUE SER BONDOSO É MUITO MELHOR DO QUE SER MALDOSO. ANTES, EU ERA COMO UMA TEMPESTADE FURIOSA. AGORA, SOU UMA BRISA QUE EMBALA BEBÊS PARA DORMIR.
 
-— E você me ensinou que os melhores amigos às vezes são aqueles que não podemos ver com os olhos, mas sentimos com o coração — respondeu Heitor, seu sorriso tão radiante que até as estrelas começando a aparecer no céu pareceram brilhar mais forte.
+— E VOCÊ ME ENSINOU QUE OS MELHORES AMIGOS ÀS VEZES SÃO AQUELES QUE NÃO PODEMOS VER COM OS OLHOS, MAS SENTIMOS COM O CORAÇÃO — RESPONDEU HEITOR, SEU SORRISO TÃO RADIANTE QUE ATÉ AS ESTRELAS COMEÇANDO A APARECER NO CÉU PARECERAM BRILHAR MAIS FORTE.
 
-E assim, na floresta encantada onde árvores antigas guardavam segredos e a luz dançava entre as folhas como fadas douradas, a amizade entre um menino de 6 anos e um monstro invisível floresceu como a mais rara e bela das flores. Ela provou que bondade e compaixão têm o poder de transformar até os corações mais solitários, e que às vezes, o amor mais verdadeiro é aquele que não precisa de olhos para enxergar — apenas um coração aberto, como uma janela pela qual a luz entra.
+E ASSIM, NA FLORESTA ENCANTADA ONDE ÁRVORES ANTIGAS GUARDAVAM SEGREDOS E A LUZ DANÇAVA ENTRE AS FOLHAS COMO FADAS DOURADAS, A AMIZADE ENTRE UM MENINO DE 6 ANOS E UM MONSTRO INVISÍVEL FLORESCEU COMO A MAIS RARA E BELA DAS FLORES. ELA PROVOU QUE BONDADE E COMPAIXÃO TÊM O PODER DE TRANSFORMAR ATÉ OS CORAÇÕES MAIS SOLITÁRIOS, E QUE ÀS VEZES, O AMOR MAIS VERDADEIRO É AQUELE QUE NÃO PRECISA DE OLHOS PARA ENXERGAR — APENAS UM CORAÇÃO ABERTO, COMO UMA JANELA PELA QUAL A LUZ ENTRA.
 
 ---
 
-## Fim
+## FIM
 
-> "As melhores amizades são aquelas que enxergam com o coração, não com os olhos."
+> "AS MELHORES AMIZADES SÃO AQUELAS QUE ENXERGAM COM O CORAÇÃO, NÃO COM OS OLHOS."

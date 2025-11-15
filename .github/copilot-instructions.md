@@ -41,3 +41,4 @@ When describing scenes, always incorporate the five senses:
 - Use headings, lists, and emphasis to enhance readability
 - Structure content with clear sections and subsections
 - Ensure proper use of punctuation and grammar throughout the text
+- All texts must be written in Brazilian Portuguese, and uppercase (for younger readers' easier reading).
